@@ -1,4 +1,4 @@
-⋆.˚𖦹⋆✮⋆.˚ "SO I PARTYLIKE A ROCKSTAR!!" ˚.⋆✮⋆𖦹˚.⋆
+⋆.˚𖦹⋆✮⋆.˚ "SO I PARTY LIKE A ROCKSTAR!!" ˚.⋆✮⋆𖦹˚.⋆
 
 ⋆.˚𖦹⋆✮⋆.˚ !!Hello !! My name is SHADESUN, my pronouns are she/her and they/them (I prefer sometimes they/them). I am a very cool person to be around, my sexuality(s) is bisexual and asexual at the current moment, 
 
@@ -15,7 +15,7 @@ I ignore advertisements, so please don't send them to me (scammers can kiss my a
 
 {!!!B4 U INT!!!} - with autism, I can get overstimulated, so I cannot be okay, so plz be aware, but if you're a close friend i am comfortable with you, then u can int (u can int if I'm doing a lil better) 
 
--With a side of  depression i can also be not mentally, ok, so I might have to take breaks from interact with you or my friends, but if I'm feeling better i will verbally say it
+-With a side of  depression i can also be not mentally, ok, so I might have to take breaks from interacting with you or my friends, but if I'm feeling better i will verbally say it
 
 - with a main course of emetophobia if u make vomit noises as a "joke" I will not talk to u (unless its 4 acting then thats fine just not realistic)
 
