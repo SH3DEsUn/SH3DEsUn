@@ -2,7 +2,7 @@
 
 ⋆.˚𖦹⋆✮⋆.˚ !!Hello !! My name is SHADESUN, my pronouns are she/her and they/them (I prefer they/them). I am a very cool person to be around; my sexuality(s) are bisexual and asexual at the current moment, 
 
-I am also a writer/designer of Toy Puzzles AU. I have autism  and depression. I'm semi-dyslexic,
+I am also a part-writer/designer of Toy Puzzles AU. I have autism  and depression. I'm semi-dyslexic,
 So bear with me if I get anything wrong.
 
 I am mostly active on Ponytown (or afk if I'm doing smt else). You can find me near the bakery at the smg4 area (which is not used as much anymore). I will be wearing myself, Mr WPNZ (from the AU), or anything else. If I'm not there, I am most likely elsewhere with my friends :) 
