@@ -11,7 +11,9 @@ I sadly don't like cuddles from people and not piles (unlesI'mim not doing well)
 
 I ignore advertisements, so please don't send them to me (scammers can kiss my ass) 
 
-{!!!B4 U INT!!!} - with autism, I can get overstimulated, so I cannot be okay, so plz be aware, but if you're a close friend I am comfortable with you, then u can int (u can int if I'm doing a lil better) 
+{!!!B4 U INT!!!}
+
+- with autism, I can get overstimulated, so I cannot be okay, so plz be aware, but if you're a close friend I am comfortable with you, then u can int (u can int if I'm doing a lil better) 
 
 - With a side of  depression, I can also be not mentally, ok, so I might have to take breaks from interacting with you or my friends, but if I'm feeling better I will verbally say it
 
