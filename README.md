@@ -7,7 +7,7 @@ So bear with me if I get anything wrong.
 
 I am mostly active on Ponytown (or afk if I'm doing smt else). You can find me near the bakery at the smg4 area (which is not used as much anymore). I will be wearing myself, Mr WPNZ (from the AU), or anything else. If I'm not there, I am most likely elsewhere with my friends :) 
 
-I sadly don't like cuddles from people and not piles (unlesI'mim not doing well), as long as you DON'T cover my friends and/or me I don't mind if you send whispers/party or other things (I type fast, so I will get to you asap), but I could be busy or not doing/feeling good, but I do respond if I do want to, 
+I sadly don't like cuddles from people and not piles (unless if im not doing well), as long as you DON'T cover my friends and/or me I don't mind if you send whispers/party or other things (I type fast, so I will get to you asap), but I could be busy or not doing/feeling good, but I do respond if I do want to, 
 
 I ignore advertisements, so please don't send them to me (scammers can kiss my ass) 
 
