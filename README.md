@@ -5,7 +5,7 @@
 I am also a part-writer/designer of Toy Puzzles AU. I have autism and depression. I'm semi-dyslexic,
 So bear with me if I get anything wrong.
 
-I am mostly active on Ponytown (or afk if I'm doing smt else). You can find me near the bakery in the SMG4 area (which isn't used as much anymore). I will be wearing myself, Mr WPNZ (from the AU), or anything else. If I'm not there, I am most likely elsewhere with my friends :) 
+I am mostly active on Ponytown (or afk if I'm doing something else). You can find me near the bakery in the SMG4 area (which isn't used as much anymore). I will be wearing myself, Mr WPNZ (from the AU), or anything else. If I'm not there, I am most likely elsewhere with my friends :) 
 
 I sadly don't like cuddles from people and not piles (unless I'm not doing well), as long as you DON'T cover my friends and/or me. I don't mind if you send whispers/party or other things (I type fast so that I will get to you asap), but I could be busy or not doing/feeling good; I do respond if I do want to, 
 
