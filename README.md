@@ -19,6 +19,6 @@ I ignore advertisements, so please don't send them to me (scammers can kiss my a
 
 - with a main course of emetophobia, if u make vomit noises as a "joke," I will not talk to u (unless it's 4 acting; then that's fine, just not realistic)
 
-{!!DNI IF!!} ableist, racist, homophobic, transphobic, pedophile, z00phile, fictionkinphobic person who fakes disorders, unkind person, closed-minded, not respecting boundaries, venting to me if not asked (I am NOT your local therapist)  (also if you're making inappropriate/18+ jokes I WILL BLOCK YOU I'M A MINOR)
+{!!DNI IF!!} ableist, and/or forcing religion (don't do this to my friends and me; that is straight-up disrespectful), racist, homophobic, transphobic, pedophile, z00phile, fictionkinphobic person who fakes disorders, unkind person, closed-minded, not respecting boundaries, venting to me if not asked (I am NOT your local therapist) (also if you're making inappropriate/18+ jokes I WILL BLOCK YOU I'M A MINOR)
 
 [interests!!} smg4/calling all villains, Balto(the cartoon version), Bridgerton (mainly season 1!!) Tangled, drawing, FNAF, SATBK, Sonic(Forces and the black knight), drawing (FEEL FREE TO ASK QUESTIONS ABT THE INTERESTS!!)˚.⋆✮⋆𖦹˚.⋆  
